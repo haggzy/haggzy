@@ -1,4 +1,5 @@
-<img width="200" height="30" alt="image" src="https://github.com/user-attachments/assets/ed66eadf-2a3a-440e-8a93-e6ec2740b831" /> <img width="200" height="30" alt="image" src="https://github.com/user-attachments/assets/2f27845e-b021-4f1e-89da-823ae89a8ddc" /> <img width="200" height="30" alt="image" src="https://github.com/user-attachments/assets/2f27845e-b021-4f1e-89da-823ae89a8ddc" /> 
+<img width="200" height="30" alt="image" src="https://github.com/user-attachments/assets/ed66eadf-2a3a-440e-8a93-e6ec2740b831" /> <img width="200" height="30" alt="image" src="https://github.com/user-attachments/assets/2f27845e-b021-4f1e-89da-823ae89a8ddc" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/a376af69-53c8-4f63-9305-c21bcc990a77" />
+
 
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/a596a668-004b-4e42-9b07-3f1d6ee5d927" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/067fc2e9-b950-4bbc-852b-cbdf2c3d70f8" />
@@ -9,7 +10,7 @@ Hello!
 
 Welcome to my page. If you're here, you've probably found me on ponytown, and you're probably here for a reason! I'm a bit bad at interactions, so I probably wont come to you first, and if I do, I probably come with a compliment, that is my opening! Anyway..
 
-<img width="200" height="30" alt="image" src="https://github.com/user-attachments/assets/ed66eadf-2a3a-440e-8a93-e6ec2740b831" /> <img width="200" height="30" alt="image" src="https://github.com/user-attachments/assets/2f27845e-b021-4f1e-89da-823ae89a8ddc" /> <img width="200" height="30" alt="image" src="https://github.com/user-attachments/assets/2f27845e-b021-4f1e-89da-823ae89a8ddc" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/8f5f87e3-a8df-47c2-a2f0-d727c2269bf5" />
+<img width="200" height="30" alt="image" src="https://github.com/user-attachments/assets/ed66eadf-2a3a-440e-8a93-e6ec2740b831" /> <img width="200" height="30" alt="image" src="https://github.com/user-attachments/assets/2f27845e-b021-4f1e-89da-823ae89a8ddc" /> <img width="200" height="30" alt="image" src="https://github.com/user-attachments/assets/2f27845e-b021-4f1e-89da-823ae89a8ddc" /> 
 
 
 
