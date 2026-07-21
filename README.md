@@ -46,5 +46,18 @@ I love to come back to whispers and cuddles! So please come over anytime, even t
   Proshippers , sexists . nazis, anti-semetic , nationalism/imperialism apologists , xenophobes , sinophobes , colorists , racists , transphobes , exclutionists , pro-rape , pro mental-illness. pro self-harm 
 </details>
 
+<details>
+  <summary>Kinlist</summary>
+  
+  Miriam - Wandersong
+  Karkat Vantas - Homestuck
+  Terezi Pyrope - Homestuck
+  Jane Crocker - Homestuck
+  Jentha Briati - Vast Error
+</details>
+
 <img width="97" height="57" alt="image" src="https://github.com/user-attachments/assets/6fec0aea-a77c-43d5-9616-e1feda55b0b8" /> <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/3989207b-c043-447c-a104-342a83f55adb" /> <img width="103" height="57" alt="image" src="https://github.com/user-attachments/assets/dc938664-901b-4629-bcae-5a9426be0a93" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/1d537baf-4956-4e02-828e-dd95da36297e" />
 <img width="150" height="30" alt="image" src="https://github.com/user-attachments/assets/54dfa658-225d-4613-af0b-2c5568ed442d" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/43f667c8-fffe-4fed-9dec-23c3686ceccd" />
+
+<img width="720" height="1241" alt="image" src="https://github.com/user-attachments/assets/f9eefdcf-4a28-4cb4-abbf-46685d1ad490" />
+
