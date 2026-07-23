@@ -21,7 +21,7 @@ I am still technincally a minor. I have a boyfriend, so please dont try anything
 
 https://haggzy.atabook.org 
 
-NOT SHARING UNTIL ITS DONE
+https://haggzyxz.straw.page
 </details>
 
 
