@@ -21,9 +21,7 @@ I am still technincally a minor. I have a boyfriend, so please dont try anything
 
 https://haggzy.atabook.org 
 
-https://fiverlicious.straw.page
-
-https://terezi-kinpage.straw.page - WORK IN PROGRESS!
+NOT SHARING UNTIL ITS DONE
 </details>
 
 
